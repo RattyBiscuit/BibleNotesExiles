@@ -1,5 +1,9 @@
-Genesis 2:8
-
+---
+tags:
+  - east
+  - west
+  - eden
+---
 “And Yahweh God planted a garden in Eden in the east, and there he put the man whom he had formed.”
 ‭‭Genesis‬ ‭2‬:‭8‬ ‭LEB‬‬
 https://bible.com/bible/90/gen.2.8.LEB
