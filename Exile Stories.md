@@ -6,6 +6,12 @@ They were sent west out of the garden which was protected to the eastern entranc
 
 ---
 
+“When you till the ground it shall no longer yield its strength to you. You shall be a wanderer and a fugitive on the earth.””
+‭‭Genesis‬ ‭4‬:‭12‬ ‭LEB‬‬
+https://bible.com/bible/90/gen.4.12.LEB
+
+What does wanderer and fugitive mean?
+
 “And Cain went out from the presence of Yahweh, and he settled in the land of Nod, east of Eden.”
 ‭‭Genesis‬ ‭4‬:‭16‬ ‭LEB‬‬
 https://bible.com/bible/90/gen.4.16.LEB
