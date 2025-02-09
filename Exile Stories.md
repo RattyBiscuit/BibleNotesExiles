@@ -10,6 +10,8 @@ They were sent west out of the garden which was protected to the eastern entranc
 ‭‭Genesis‬ ‭4‬:‭14‬ ‭LEB‬‬
 https://bible.com/bible/90/gen.4.14.LEB
 
+*What does wanderer and fugitive mean?*
+
 “And Cain went out from the presence of Yahweh, and he settled in the land of Nod, east of Eden.”
 ‭‭Genesis‬ ‭4‬:‭16‬ ‭LEB‬‬
 https://bible.com/bible/90/gen.4.16.LEB
