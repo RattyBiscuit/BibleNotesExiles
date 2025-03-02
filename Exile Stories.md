@@ -26,6 +26,6 @@ Genesis 7-8
 Noah and his family were placed in exile from the Earth where they were supposed to live and exist and forced to be amongst the chaos waters of uncreation
 After the flood sub sided they were returned from exile to the 'new creation' of the cleansed world but as the vineyard story shows us it was not as it was supposed to be as all the same problems still existed. So they returned but it was not to the hoped for Eden complete redemptive hope.
 
-> And God saw the earth, and behold, it was corrupt, for all flesh had corrupted its way upon the earth. (Genesis 6:12, LEB, https://ref.ly/Ge6.12;leb)
+> 11 And the earth was corrupted before God, and the earth was filled with violence. 12 And God saw the earth, and behold, it was corrupt, for all flesh had corrupted its way upon the earth. ([Genesis 6:11–12](https://ref.ly/Ge6.11-12;leb), LEB)
 
-The exiles have fulfilled Yahweh’s command to subdue the earth but not as intended
+The exiles have fulfilled Yahweh’s command to subdue the earth but not as intended, they filled it with violence
