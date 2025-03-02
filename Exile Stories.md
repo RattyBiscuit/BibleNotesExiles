@@ -24,4 +24,4 @@ The flood
 Genesis 7-8
 
 Noah and his family were placed in exile from the Earth where they were supposed to live and exist and forced to be amongst the chaos waters of uncreation
-After
+After the flood sub sided they were returned from exile to the 'new creation' of the cleansed world but as the vineyard story shows us it was not as it was supposed to be as all the same problems still existed. So they returned but it was not to the hoped for Eden complete redemptive hope.
