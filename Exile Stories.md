@@ -20,3 +20,8 @@ Cain was  sent away from Eden out west (toward what would become Babylon) and bu
 
 ---
 
+The flood
+Genesis 7-8
+
+Noah and his family were placed in exile from the Earth where they were supposed to live and exist and forced to be amongst the chaos waters of uncreation
+After
