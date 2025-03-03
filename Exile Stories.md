@@ -30,4 +30,4 @@ After the flood sub sided they were returned from exile to the 'new creation' of
 
 The Eden exiles have fulfilled Yahweh’s command to subdue the earth but not as intended, they filled it with .
 
-On Noah and family's return from their exile in the chaos waters they are returned to the earth where everything is new and different - like a new creation for them, but they had not changed or been renewed so the same patterns began again
+On Noah and family's return from their exile in the chaos waters they are returned to the earth where everything is new and different - like a new creation for them, but they had not changed or been renewed so the same patterns began again straight away. This is the start of the return from exile but not everything is right and in fact in some ways they are still in exile after their return.
